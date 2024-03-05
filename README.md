@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @juliamensagem
+- 👋 Hi, I’m @juliamenssagi
 - 👀 I’m interested in Jesus, movies, series, chocolate and little pups
 - 🌱 I’m currently learning cooking, patination, english and a lot of others things
 
